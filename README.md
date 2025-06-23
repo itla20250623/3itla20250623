@@ -11,7 +11,7 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://hj-216.pages.dev/">精彩影视</a>
+点击访问：<a href="https://hj-216.pages.dev/">51视频官方精彩影视</a>
 
 点击访问：<a href="https://hj-218.pages.dev/">51黑料不打烊黑料网视频</a>
 
@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://hj-170.pages.dev/">Twitter中文版</a>
 
-点击访问：<a href="https://hls-15.pages.dev/">官方网</a>
+点击访问：<a href="https://hls-15.pages.dev/">黑料官方网</a>
 
 点击访问：<a href="https://hls-17.pages.dev/">TikTok成人版最新娱乐</a>
 
